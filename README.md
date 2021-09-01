@@ -1,10 +1,5 @@
 # Vyanne Joyce P. Ortua
-## 3rd Year College
-
-### Interests:
-+ Music
-+ Korean Contents
-+ Traveling
+## 4th Year College
 
 ### Email: qvjportua@tip.edu.ph
 ### Computer Specs: 
